@@ -1,6 +1,4 @@
-Voici un modèle détaillé de politique de confidentialité en arabe que vous pouvez utiliser et personnaliser selon vos besoins. 
 
----
 
 ## **سياسة الخصوصية**
 
